@@ -39,3 +39,4 @@ The final task, we were assigned were was the collection of data for array of se
 
 - Deepak Bhatter [@DeepakBhatter](https://www.linkedin.com/in/deepak-bhatter5512?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3BoCYT3PQmTJKYeWeOME6%2BdA%3D%3D)
 - Rahul Sharma [@RahulSharma](https://www.linkedin.com/in/rahul-sharma-8bb270259?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3BnrhobKq%2FQQi3eOf8lKuWdQ%3D%3D)
+- Chirag Bhattar [@ChiragBhattar](https://www.linkedin.com/in/chirag-bhattar-61095b250/)
